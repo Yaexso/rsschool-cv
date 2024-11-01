@@ -1,1 +1,1 @@
-https://yaexso.github.io/rsschool-cv/cv
+https://yaexso.github.io/rsschool-cv/
